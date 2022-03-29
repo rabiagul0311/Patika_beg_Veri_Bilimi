@@ -1,0 +1,1 @@
+# Patika_beg_Veri_Bilimi
